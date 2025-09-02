@@ -1,1 +1,1 @@
-# Bitirme-Projesi---Temass-z-Kalp-At-H-z-l-me
+# Bitirme-Projesi---Temassiz Kalp Atis Hizi Olcme
